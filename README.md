@@ -1,1 +1,0 @@
- <article></article><input data="dot"><a href="http://tinyurl.com/ycnjzb3h">Lyon vs Everton </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
